@@ -15,8 +15,7 @@ https://github.com/user-attachments/assets/0b655389-6726-488b-be7c-6d3dac268d41
   - You won’t be able to determine the amount to flash.
   - They send lower than the minimum at times.
   - **Recommendation:** Get the software instead as it’s better.
-https://t.me/BitcoinFlashingSoftwareBot
-
+[Bitcoin Software Bot](https://t.me/BitcoinSoftwareBot)
 
 https://github.com/user-attachments/assets/ae477ec5-090c-4b5b-a8bd-9ba408776985
 DM THEM ON TELEGRAM THEY ARE LEGIT AS I HAVE TRIED THEM.
